@@ -1,1 +1,1 @@
-This is my online portfolio. Feel free to reac out through the contacts given
+This is my online portfolio. Feel free to reach out through the contacts given
